@@ -64,9 +64,9 @@ DO NOT POST MY SKINS ON PINTEREST or steal them , I've dealt with major skin ste
   <img src="https://files.catbox.moe/kmywbr.gif" width=50>
  </h3>
 
- ![image](https://files.catbox.moe/yx17x8.gif) [CAARD](https://cybrbytes.ju.mp) ➔ My main about me . </br>
+ ![image](https://files.catbox.moe/yx17x8.gif) [CAARD](https://cybrbytes.ju.mp) ➔ My main about me . </br> in progress
  
- ![image](https://files.catbox.moe/evh23v.gif) [RENTRY](https://rentry.co/satorusprtnr) ➔ My about me for ponytown users . </br> 
+ ![image](https://files.catbox.moe/evh23v.gif) [RENTRY](https://rentry.co/satorusprtnr) ➔ My about me for ponytown users . </br>  in progress
  
  ![image](https://files.catbox.moe/dob47f.png) DISCORD ➔ @ CYBRBYTES
  
